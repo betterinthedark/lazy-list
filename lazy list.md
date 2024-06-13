@@ -14,7 +14,7 @@ itemized:
 We'll be camped for two nights. The 2 miles hike in for the first night then a night and some more. Take what you feel is appropriate, we don't have *that* intense of a walk into camp but it's definitely not gonna be just a jog around the block. A good rule of thumb I hear get passed around is 
 *2lb of food per day per head.* So do with that what you will. Try to pack your own grub as much as possible but i'm sure we'll still be doin hotdogs or something like that. Communicate.
 
-However, whatever you do decide to bring make sure you're also deciding how you're gonna stash it. We don't have a choice; you will **need** to consider how we pack the food at night for bears. We can get into trouble if a ranger rolls up and we've just got food and garbage everywhere bcz that's how bears start realizing they can obliterate people to get at the box of fruit snacks.
+However, whatever you do decide to bring make sure you're also deciding how you're gonna stash it. We don't have a choice; you will **need** to consider how we pack the food at night for bears. We can get into trouble if a ranger rolls up and we've just got food and garbage everywhere bcz that's how bears start realizing they can obliterate people to get at the box of fruit snacks. The camps do provide bear bag cables  already installed in trees and shit at site but not the bags themselves. Just make sure you're willing to either hang your bag with all odorous stuffs in it overnight or bring something that'll do the job overnight. Something stronger than a trash bag is really all.
 
 Water is also important, arguably more, bring water bottle**s**. Yes plural. I personally suggest going to the store or amazon and buying a few of the smart water bottles that are atleast a liter in size. they sell a 1.5 liter bottle as well so if your pack can carry them you've got 3 liters of drinking water storage.
 
@@ -39,10 +39,10 @@ Some stuff you'll want to consider in no particular order...
 * BRING A *FUCKING* ***KNIFE***
 	* *ahem*
 		* #### ***BRING A FUCKING KNIFE***
-* You might get bored! We don't have much distance to cover (~2 miles) before we get to camp on the first day and unless we decide otherwise our itinerary has us just stayin there at site #50. Bring a book, your switch, whatever. 
 * Walking stick/trekking poles are always nice
-* BUG SPRAY!!!!!!!!!!!!! FUCK!;!
-* expect it to be HUMID expect it to be HOT and expect the BUGS to be PROWLING FOR THAT ASS. I'm not expecting a super tick infested area but I am absolutely expecting MOSQUITOS. I know I already mentioned the bug spray but I wanted to make a point specifically about the squitos. bring some off, bring some repellant lotion, do what you gotta do. if you really really really don't want bug bites on your face they make super cheat mosquito nets that you can just throw over a hat and keep em' off your face. amazon is the move 4 this one.
+* expect it to be HUMID expect it to be HOT and expect the BUGS to be PROWLING FOR THAT ASS. I'm not expecting a super tick infested area but I am absolutely expecting MOSQUITOS. 
+	* bring some off, bring some repellant lotion, do what you gotta do. if you really really really don't want bug bites on your face they make super cheat mosquito nets that you can just throw over a hat and keep em' off your face. amazon is the move 4 this one.
+	* I also would suggest, if you find that you always get eaten alive no matter what you use bring some Cortizone-10 anti itch. trust me.
   
 
 
